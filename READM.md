@@ -1,0 +1,3 @@
+ "The sole aim of this NGO is to restore human dignity. Operating in Coimbatore, this NGO offers rehabilitation, 
+healthy food and care to the street destitute.Our team has been working on the welfare of children and families all 
+over the world.We have joined hand with several other foundations in bringing back several people's dignity and their will to live."
